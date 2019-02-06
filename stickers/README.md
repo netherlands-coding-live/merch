@@ -1,1 +1,1 @@
-# Folder for stickers! ☮️
+# Folder for stickers ☮️
